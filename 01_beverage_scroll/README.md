@@ -11,7 +11,7 @@ https://www.youtube.com/watch?v=rbIbvw6c53k&t=94s
 
 ### Model Asset
 
-https://sketchfab.com/3d-models/arknights-originium-soda-992de4a6eb6e44d8a1088757bafca9ec
+https://skfb.ly/6wKFz
 
 ### Sounds Asset
 
